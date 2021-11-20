@@ -6,6 +6,7 @@
 - [Philippe Dubost](https://phildub.com/)
 - [John Ellison](http://john-ellison.com/)
 - [Thaisa Fernandes](https://www.thaisafernandes.com/)
+- [James Granata](https://jgranata.com/)
 - [Mark Harris](https://markharris.io/) - especially [Why Me?](https://markharris.io/whyme/)
 - [Emily Ingram](http://emilyingram.com/)
 - [Juan J. Ramirez](http://www.whoisjuan.me/)
